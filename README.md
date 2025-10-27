@@ -1,1 +1,1 @@
-# random-earth
+<img width="1274" height="2913" alt="www paradiseterra com_s_ address=Find%20houses%20for%20short-term%20rental%20that%20allow%20pets%20and%20are%20within%2030%20minutes%20of%20central%20London checked=true" src="https://github.com/user-attachments/assets/368b6a3e-6aa0-48c1-a11e-e449aeeefa52" />
